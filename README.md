@@ -5,7 +5,7 @@
 
 
 # [NaruV1.6](https://naru.s-ul.eu/Y16IQKY0)
-![](https://naru.s-ul.eu/UPG9NJKE)
+![](https://naru.s-ul.eu/pZmxpZ6g)
 
 # [Sagiri v7](https://puu.sh/xPz27/37a538fb6d.osk)
 ![](https://puu.sh/xPzb1/ea7d8a4818.jpg)

@@ -1,11 +1,11 @@
-# Lege skin compilation
+# Naru skin compilation
 
 
 **Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
 
 
-# [Azusa](http://www.mediafire.com/file/r6medpj0pxmv3ec/Lege+sky%26Azusa.osk)
-![](https://puu.sh/ygUio/84ecd406eb.jpg)
+# [NaruV1.6](https://naru.s-ul.eu/Y16IQKY0)
+![](https://naru.s-ul.eu/UPG9NJKE)
 
 # [Sagiri v7](https://puu.sh/xPz27/37a538fb6d.osk)
 ![](https://puu.sh/xPzb1/ea7d8a4818.jpg)

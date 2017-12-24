@@ -9,3 +9,6 @@
 
 # [LoscilV1.3_Remaster](https://www.dropbox.com/s/ld8aipepjrm1kk8/Loscil%20V1.3_Remaster.osk?dl=0)
 ![](https://pp.userapi.com/c837223/v837223994/79341/6_zsm_2PMZw.jpg)
+
+# [NaruV1.7](https://naru.s-ul.eu/Sffjf7zA)
+![](https://pp.userapi.com/c840432/v840432997/369c4/eKY5Jdjzs8k.jpg)

@@ -13,7 +13,7 @@
 # [NaruV1.7](https://naru.s-ul.eu/Sffjf7zA)
 ![](https://pp.userapi.com/c840432/v840432997/369c4/eKY5Jdjzs8k.jpg)
 
-# [NaruV1.7.1](https://naru.s-ul.eu/Sffjf7zA)
+# [NaruV1.7.1](https://naru.s-ul.eu/6LTFgOE8)
 ![](https://pp.userapi.com/c841023/v841023773/60d18/qIYlW3xmgDM.jpg)
 ![](https://pp.userapi.com/c840432/v840432997/369c4/eKY5Jdjzs8k.jpg)
 

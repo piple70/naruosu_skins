@@ -1,7 +1,7 @@
-# Naru skin compilation
+# Здесь собраны все скины которые я делал сам
 
 
-**Click on the skin name to download. If the download does not start or displays strange characters, press ctrl + S.**
+**Что бы скачать скин нажми на его название**
 
 
 # [NaruV1.6](https://naru.s-ul.eu/Y16IQKY0)
@@ -16,4 +16,8 @@
 # [NaruV1.7.1](https://naru.s-ul.eu/6LTFgOE8)
 ![](https://pp.userapi.com/c841023/v841023773/60d18/qIYlW3xmgDM.jpg)
 ![](https://pp.userapi.com/c840432/v840432997/369c4/eKY5Jdjzs8k.jpg)
+
+# [AzureAlpha](https://ujico.s-ul.eu/oCpWHLOC)
+![](https://ujico.s-ul.eu/1Esx0W7M)
+![](https://ujico.s-ul.eu/mxufQ0ik)
 

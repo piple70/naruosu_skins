@@ -17,7 +17,7 @@
 ![](https://pp.userapi.com/c841023/v841023773/60d18/qIYlW3xmgDM.jpg)
 ![](https://pp.userapi.com/c840432/v840432997/369c4/eKY5Jdjzs8k.jpg)
 
-# [AzureAlpha](https://ujico.s-ul.eu/oCpWHLOC)
+# [AzureAlpha](https://ujico.s-ul.eu/t6Lpk7eP)
 ![](https://ujico.s-ul.eu/1Esx0W7M)
 ![](https://ujico.s-ul.eu/mxufQ0ik)
 

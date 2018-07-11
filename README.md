@@ -21,3 +21,6 @@
 ![](https://ujico.s-ul.eu/1Esx0W7M)
 ![](https://ujico.s-ul.eu/mxufQ0ik)
 
+# [NaruV2.0]
+![](https://ujico.s-ul.eu/0VtBmArC)
+![](https://ujico.s-ul.eu/GhvkYuvE)

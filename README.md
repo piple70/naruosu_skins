@@ -24,3 +24,7 @@
 # [NaruV2.0 Only @2x](https://ujico.s-ul.eu/BVujIqzW)
 ![](https://ujico.s-ul.eu/0VtBmArC)
 ![](https://ujico.s-ul.eu/GhvkYuvE)
+
+# [Naru3.0](https://www.mediafire.com/file/xydpgfs3cyzz7de/-_%23_NaruV3.0.osk/file)
+![](https://pp.userapi.com/c849020/v849020438/c328b/arYonejvM8I.jpg)
+![](https://pp.userapi.com/c849020/v849020438/c32a9/FxHoF08buaM.jpg)

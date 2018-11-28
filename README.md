@@ -1,7 +1,7 @@
-# Здесь собраны все скины которые я делал сам
+# Compimilation of all skins made by my self
 
 
-**Что бы скачать скин нажми на его название**
+**For download just click on skin name**
 
 
 # [NaruV1.6](https://naru.s-ul.eu/Y16IQKY0)

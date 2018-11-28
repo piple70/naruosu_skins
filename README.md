@@ -1,4 +1,4 @@
-# Compimilation of all skins made by my self
+# Compilation of all skins made by my self
 
 
 **For download just click on skin name**

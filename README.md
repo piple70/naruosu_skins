@@ -28,3 +28,8 @@
 # [NaruV3.0](http://www.mediafire.com/file/ib7o9w70ze5tvay/-_%2523_NaruV3.0.osk/file)
 ![](https://pp.userapi.com/c849020/v849020438/c328b/arYonejvM8I.jpg)
 ![](https://pp.userapi.com/c849020/v849020438/c32a9/FxHoF08buaM.jpg)
+
+
+# [NaruV4.0](http://www.mediafire.com/file/kcavsi5gj0y7qjl/-+%23+NaruV4.0.osk)
+![](https://i.imgur.com/3lhOYrB.png)
+![](https://i.imgur.com/axItEHh.png)

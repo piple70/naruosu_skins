@@ -33,3 +33,8 @@
 # [NaruV4.0](http://www.mediafire.com/file/kcavsi5gj0y7qjl/-+%23+NaruV4.0.osk)
 ![](https://i.imgur.com/3lhOYrB.png)
 ![](https://i.imgur.com/axItEHh.png)
+
+
+# [NaruV4.1](https://mega.nz/#!SxlkSQKD!mhLqEMtfDGyYlACkDzNNlhXb5gL_emYEFvhQGuka6CI)
+![](https://i.imgur.com/cPIbR1k.png)
+![](https://i.imgur.com/0W2LdCu.jpg)

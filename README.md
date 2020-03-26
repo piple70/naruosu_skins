@@ -40,7 +40,7 @@
 ![](https://i.imgur.com/0W2LdCu.jpg)
 
 
-# [NaruV5](https://www.mediafire.com/file/3opiz24wj9aiqab/-_%23_NaruV5.osk/file)
+# [NaruV5.0](https://www.mediafire.com/file/3opiz24wj9aiqab/-_%23_NaruV5.osk/file)
 ![](https://sun9-70.userapi.com/c206824/v206824753/791ac/sns6wTF5lTE.jpg)
 ![](https://sun9-49.userapi.com/c206824/v206824753/791de/y_-q8Ue7nZY.jpg)
 

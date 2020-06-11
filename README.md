@@ -44,3 +44,7 @@
 ![](https://sun9-70.userapi.com/c206824/v206824753/791ac/sns6wTF5lTE.jpg)
 ![](https://sun9-49.userapi.com/c206824/v206824753/791de/y_-q8Ue7nZY.jpg)
 
+# [NaruV6.0 Morikura EN](https://drive.google.com/file/d/17lE5woBg0eOPy1Swy0Rro8Swz18tc3Zb/view)
+![](https://i.imgur.com/qCKciiT.png)
+![](https://i.imgur.com/s7WkIKr.jpg)
+

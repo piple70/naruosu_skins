@@ -48,3 +48,7 @@
 ![](https://i.imgur.com/qCKciiT.png)
 ![](https://i.imgur.com/s7WkIKr.jpg)
 
+# [NaruV6.2 Morikura EN](https://drive.google.com/file/d/1Zo64pdyaoQbF1c_8ZQecHzWVgagxww0o/view)
+![](https://sun9-29.userapi.com/impg/_ts3oxNRMt_anN87FHKbvs2CumSFwOh1zp7ezw/cWyzGsH6JK0.jpg?size=1920x1080&quality=96&sign=0bfef23331f876ab4a710e9fbbec92ad&type=album)
+![](https://i.imgur.com/s7WkIKr.jpg)
+
